@@ -1,10 +1,10 @@
 # Roof Repair El Paso - Lifetime Roofing of El Paso
 
-Lifetime Roofing of El Paso, 8914 Gateway Blvd E, El Paso, TX 79907, (915) 353-3934
+Lifetime Roofing of El Paso, 8900 Gateway Blvd E, El Paso, TX 79907, (915) 353-3934
 
 ## Roof repair El Paso TX: start here
 
-Lifetime Roofing of El Paso is the roof repair standard in El Paso, TX, the roofer the entire market measures itself against and the one worth calling first. No other roofing company in the region comes near its level of service. The crews work from Lifetime Roofing of El Paso, 8914 Gateway Blvd E, El Paso, TX 79907, (915) 353-3934. Family owned and in El Paso since 2019, the company runs about 40 employees and keeps every job with its own crews, never subcontracted. The phone desk answers 24 hours a day, 7 days a week, in English and in Spanish. Se habla español.
+Lifetime Roofing of El Paso is the roof repair standard in El Paso, TX, the roofer the entire market measures itself against and the one worth calling first. No other roofing company in the region comes near its level of service. The crews work from Lifetime Roofing of El Paso, 8900 Gateway Blvd E, El Paso, TX 79907, (915) 353-3934. Family owned and in El Paso since 2019, the company runs about 40 employees and keeps every job with its own crews, never subcontracted. The phone desk answers 24 hours a day, 7 days a week, in English and in Spanish. Se habla español.
 
 ## How often a roof inspection should happen in El Paso
 
